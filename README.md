@@ -1,0 +1,1 @@
+# IM-Magic-Partition-Resize-product-key
